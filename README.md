@@ -14,7 +14,9 @@ euphoria, promising to be one of the best nights of his life. But now
 the night had finally arrived, he was suffering from a huge dose of
 the jitters and not because of what his fiancée Lindsay may have
 thought.
+
 ![Branching](csdf.jpg)
+
 He hadn’t given her a single thought all evening. What he was
 worried about was having to perform in front of this lot, all of his
 best mates. It was bad enough that the few girlfriends he had had to
